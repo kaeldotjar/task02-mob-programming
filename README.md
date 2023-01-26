@@ -8,6 +8,8 @@ Kelly Castelo
 
 Leonardo Vasconcelos  
 
+Luan Lima
+
 Marcklen Guimarães  
 
 Mariana Machado  
